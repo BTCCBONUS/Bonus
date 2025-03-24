@@ -58,7 +58,7 @@
         <td>紹介したユーザーの登録ごとに報酬を獲得。</td>
     </tr>
     <tr>
-        <td><strong>BTCC取引特典</strong></td>
+        <td><strong>BTCC 取引特典</strong></td>
         <td>限定の取引報酬を受け取ることが可能。</td>
     </tr>
 </table>
