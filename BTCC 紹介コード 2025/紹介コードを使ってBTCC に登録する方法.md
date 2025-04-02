@@ -4,6 +4,7 @@
 <section>
 <p>BTCC（Bitcoin Trading Company）は、主要な暗号通貨取引所の一つであり、多様な取引オプション、高いセキュリティ、競争力のある手数料を提供しています。BTCCに登録する際に、<strong>BTCC紹介コード</strong>を使用すると、特典を最大限に活用できます。本記事では、<strong>紹介コード</strong>または<strong>プロモコード</strong>を使用してBTCCに登録し、<strong>11,000 USDTのボーナス</strong>や<strong>手数料50%割引</strong>などの特典を獲得する方法をステップごとに説明します。</p>
 </section>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <section>
 <h2>BTCC紹介コードを使用する理由</h2>
