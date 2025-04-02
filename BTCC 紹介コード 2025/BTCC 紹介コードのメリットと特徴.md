@@ -2,6 +2,7 @@
 <h2>はじめに</h2>
 <p>BTCCは、業界をリードする暗号通貨取引所の1つであり、収益を最大化できる魅力的な紹介プログラムを提供しています。<strong>BTCC登録ボーナス</strong>を探している新規ユーザーでも、<strong>BTCC紹介ボーナス</strong>を獲得したい経験豊富なトレーダーでも、<strong>BTCC紹介コード</strong>を利用することで、大きな報酬を得ることができます。</p>
 <p>このガイドでは、<strong>BTCCプロモーションコード</strong>の使い方、<strong>BTCC割引コード</strong>のメリット、<strong>11,000 USDT</strong>を獲得し、<strong>取引手数料50%オフ</strong>を受ける方法について説明します。</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>BTCC紹介コードとは？</h2>
 <p><strong>BTCC紹介コード</strong>は、ユーザーが<strong>BTCC取引ボーナス</strong>を獲得できる特別なコードです。登録時または他のユーザーを招待する際にこの<strong>BTCCプロモーションコード</strong>を入力すると、特典や手数料の割引を受けることができます。</p>
