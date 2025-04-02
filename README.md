@@ -1,6 +1,8 @@
 <h1>BTCC 紹介コード『BTCCBONUS』– 最大11,000 USDTボーナス & 取引手数料50%割引</h1>
 <h2>紹介</h2>
 <p>BTCCでの取引報酬を最大化する最良の方法をお探しですか？最新のBTCC紹介コード（プロモコードまたは割引コード）を使用すると、新規ユーザーは最大11,000 USDTの登録ボーナスと取引手数料の50%割引を受け取ることができます。初心者でも経験豊富なトレーダーでも、BTCC紹介ボーナスを活用して最高の取引メリットを享受しましょう。</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>最大11,000 USDTのBTCC登録ボーナス</h2>
 <h3>BTCC紹介コード - BTCCBONUS</h3>
 <table border="1">
